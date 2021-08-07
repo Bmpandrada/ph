@@ -1,1 +1,0 @@
-# bmpAndrada.github.io
